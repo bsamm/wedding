@@ -1,1 +1,1 @@
-# Kristen and Brandon's brutal wedding site
+# Kristen and Brandon's wedding site
